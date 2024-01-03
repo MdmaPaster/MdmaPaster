@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @MdmaPaster
 - 👀 I Will Learn You How To Paste Cheats
+- https://discord.gg/vsSDQcFJKF
 
 
 <!---
